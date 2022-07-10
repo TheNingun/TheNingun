@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TheNingun
-- 👀 I’m interested in graphic design, programming and editing
+- 👀 I’m interested in graphic design, programming and editing video
 - 🌱 I’m currently learning school
 - 💞️ I’m looking to collaborate on nobody
 - 📫 How to reach me my telegram - https://t.me/catnoyar
